@@ -1,1 +1,0 @@
-# heyitzsock.github.io
